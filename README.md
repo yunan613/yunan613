@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yunan613
-- 👀 I’m interested in environmental design and the relationship between design and mental health.
+- 👀 I’m interested in the relationship between design and mental health.
 - 🌱 I’m currently learning how to code and work with computers more efficently.
 - 💞️ I’m looking to collaborate with researchers and entrepreneurs who are interested in exploring ways to improve the built environment for enhancing both mental and physical health for everyone.
 - 📫 How to reach me: reach me at anytime by email(yyn613125@163.com) or phone(+86 18852192695).
